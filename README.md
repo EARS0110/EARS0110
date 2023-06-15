@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @EARS0110
-- 👀 I’m interested in ...PROGRAMMIN AND SEX
+- 👀 I’m interested in ...PROGRAMMING
+- 
 - 🌱 I’m currently learning ...ALL TYPES OF PROGRAMMING
 - 💞️ I’m looking to collaborate on ...GOOGLE
 - 📫 How to reach me ...Y LIKE YOU YOU CAN DO IT
